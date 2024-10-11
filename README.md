@@ -12,6 +12,6 @@ cardoso.santos.kauan1212@escola.pr.gov.br
 
 @kauancardoso
 
-![descrição do GIF](link GIF do Tenor)
+
 
 
